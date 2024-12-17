@@ -2,7 +2,7 @@
 
 <a href="https://lotoaff.online/links/?btag=2261812">
   <img src="https://r.resimlink.com/9osvfIhnulB.gif" alt=""    
-       style="width:400px;height:400px;">
+       style="width:px;height:px;">
 </a>
 
 # kumar siteleri - bonus veren siteler
